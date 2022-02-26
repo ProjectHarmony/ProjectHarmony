@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ProjectHarmony
+- 👀 I’m interested in girls
+- 🌱 I’m currently learning how to talk to girls
+- 💞️ I’m looking to collaborate on my relationship
+- 📫 How to reach me (secret)
